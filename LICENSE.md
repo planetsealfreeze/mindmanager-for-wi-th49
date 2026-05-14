@@ -1,4 +1,4 @@
-# 
+# best MindManager for Windows Tool | Gantt-view + task-integration offers the most advanced MindManager for Windows tool, with Gantt-view and task-integration. Ideal for Windows
 
 
 
